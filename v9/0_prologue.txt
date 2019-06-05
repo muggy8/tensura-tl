@@ -3,9 +3,12 @@
 
     录入：kid
     Chinese Editor: kid
+    
+    English Translator: muggy8
+    TL note: Sometimes, in chinese, sentences won't havs subjects in them and the whole sentence consists of only actions and objects. The [brackets] are places where I have inserted subjects into the sentence to make it make sense in english. 
 
     他──本城正幸（Honjyo Masayuki）是「勇者」。
-    he──or rather, Honjyo Masayuki is a「Hero」.
+    He──or rather, Honjyo Masayuki is a「Hero」.
 
     并非正幸自称勇者，只是他遇见的人们不知为何擅自如此称呼他。
     it's not that masayuki is a selfproclamed hero but rather, the people he meets seems to dub him as such.
@@ -23,7 +26,7 @@
     How did things end up like this?
 
     若要解释，得回溯到一年前。
-    For the explanation, (we) must rewind to a year ago.(m: this in chinese is one of those subjectless sentences.)
+    For the explanation, [we] must rewind to a year ago.
 
     ………………
 
@@ -66,28 +69,41 @@
     Masayuki sat on the water fountian in the town square unsure of what to do.
 
     随著时间一分一秒过去，他稍微冷静下来。毕竟继续这样下去也不是办法，他决定认真思考，想想事情怎么会变成这样。
+    As time slowly ticks on, Masayuki began to calm down. After all, continueing like this isn't going to solve the problem. He decided to really give it some thought and figure out how things ended up like this.
 
     仔细想想，那个美女很可疑。
+    Thinking over it carefully, that beautie is quite suspicious
 
     长得那么美，却没人注意到她。虽然没有什么依据，但是正幸的直觉如此告诉他。
+    She's pretty much unnoticed despite how pretty she is. Though there's no basis for this, yet that's what Masayuki's gut feelings told him
 
     可是，那个美女不在这里。
+    But that beautie isn't actually here
+    {the term "美女" is used a lot and directly translates to "beautiful/pretty" + "girl/women". I have decided to just use the word "beautie" instead since this is a forshadowing for Velgrynd}
 
     转头张望也看不到她的踪影，到处都找不著。
+    No matter where Masayuki looked, [he] couldn't spot her again. Infact, [she's] nowhere to be found
 
     （像这种时候，身为始作俑者的美女应该也要一起来才对啊。话说回来，咦？真的假的？这不是整人游戏，真的是跑到异世界了那类型的？）
+    (In times like this, isn't the beautie who initiated this whole thing supposed to come with right? speaking of, err? This isn't some kind of a prank? have [I] really been transported to an isekai?)
 
     然后身旁还会刚好有个知情人士这种好事。
+    And there's some kind of a knowledgeable person near by or something like that
 
     可惜正幸似乎没这么走运。
+    But Masayuki wasn't this lucky
 
     太阳就快下山了。
+    The sun's about to set
 
     中午在学校餐厅吃过饭后，他什么都没吃。想也知道肚子很饿。
+    Masayuki has yet to eat anything and his last meal was at lunch. It doesn't take a genius to figur out that [he's] hungry
 
     等一下啊──正幸认真地思考著。
+    wait a minute──Masayuki seriousely thought
 
     这里是一座城镇。不是出现在森林或是魔物面前算他运气好，但事情的发展还是太强人所难了。
+    This is a town. Not spawning in the middle of the forest or in front of some monsters is [a feat of] luck already, but things are still too difficult.
 
     （通常这种时候都会有个国王之类的人在等我，对我说明来龙去脉，或是帮忙张罗一下吧？）
 
