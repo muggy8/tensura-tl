@@ -3,15 +3,15 @@
 
     录入：kid
     Chinese Editor: kid
-    
+
     English Translator: muggy8
-    TL note: Sometimes, in chinese, sentences won't havs subjects in them and the whole sentence consists of only actions and objects. The [brackets] are places where I have inserted subjects into the sentence to make it make sense in english. 
+    TL note: Sometimes, in chinese, sentences won't havs subjects in them and the whole sentence consists of only actions and objects. The [brackets] are places where I have inserted subjects into the sentence to make it make sense in english.
 
     他──本城正幸（Honjyo Masayuki）是「勇者」。
     He──or rather, Honjyo Masayuki is a「Hero」.
 
     并非正幸自称勇者，只是他遇见的人们不知为何擅自如此称呼他。
-    it's not that masayuki is a selfproclamed hero but rather, the people he meets seems to dub him as such.
+    It's not that masayuki is a self proclamed hero but rather, the people he meets seems to dub him as such.
 
     来到这个莫名其妙的世界还未满一年，然而正幸的大名已响彻西方诸国，变成无人不知无人不晓的名人。
     It's been less than a year since Masayuki arrived in this world yet his name has since become well know throughout the western nations. He has thus became a well known celebrety.
@@ -41,17 +41,17 @@
     When suddelly, he saw a beautiful blue haird super model like cocasian women
 
     那奇异的发色远看依旧十分醒目。正幸长这么大第一次看到那么漂亮的人，那般美人会引起众人注目自是理所当然。
-    that strangely colored hair is very eye catching. This is the first time Masayuki shaw someone this beautiful. It's only natrwal for soreone like to catch the attention of many
+    That strangely colored hair is very eye catching. This is the first time Masayuki shaw someone this beautiful. It's only natrwal for soreone like to catch the attention of many
 
     「喂，快看。她好漂亮──」
     「Hey, look, she's so pretty──」
 
     所以正幸也以男高中生会有的直率反应，朝走在身旁的友人开口。
-    speaking like the highschooler he is, Masayuki made his statement to his friends
+    Speaking like the highschooler he is, Masayuki made his statement to his friends
 
     可是──毫无反应。
     But──there's no responce
-    
+
     正幸在心里「咦」了一声，转头看去──眼前是一片陌生的街道。
     Masayuki thought "hun" and turned to face his friends only to find an unfarmiliar street
 
@@ -100,7 +100,7 @@
     Masayuki has yet to eat anything and his last meal was at lunch. It doesn't take a genius to figur out that [he's] hungry
 
     等一下啊──正幸认真地思考著。
-    wait a minute──Masayuki seriousely thought
+    Wait a minute──Masayuki seriousely thought
 
     这里是一座城镇。不是出现在森林或是魔物面前算他运气好，但事情的发展还是太强人所难了。
     This is a town. Not spawning in the middle of the forest or in front of some monsters is [a feat of] luck already, but things are still too difficult.
@@ -622,4 +622,3 @@
     对于受万人赞扬的自己日日都感到疑惑。
 
     这样的正幸即将碰上天大转机──添加书签     返回书页     上一页     下一页     返回书目     推荐本书
-
