@@ -3,18 +3,18 @@
 
     录入：kid
     Chinese Editor: kid
-    
+
     English Translator: muggy8
-    TL note: Sometimes, in chinese, sentences won't havs subjects in them and the whole sentence consists of only actions and objects. The [brackets] are places where I have inserted subjects into the sentence to make it make sense in english. 
+    TL note: Sometimes, in chinese, sentences won't have subjects in them and the whole sentence consists of only actions and objects. The [brackets] are places where I have inserted subjects into the sentence to make it make sense in english.
 
     他──本城正幸（Honjyo Masayuki）是「勇者」。
     He──or rather, Honjyo Masayuki is a「Hero」.
 
     并非正幸自称勇者，只是他遇见的人们不知为何擅自如此称呼他。
-    it's not that masayuki is a selfproclamed hero but rather, the people he meets seems to dub him as such.
+    It's not that Masayuki is a self proclaimed hero but rather, the people he meets seems to dub him as such.
 
     来到这个莫名其妙的世界还未满一年，然而正幸的大名已响彻西方诸国，变成无人不知无人不晓的名人。
-    It's been less than a year since Masayuki arrived in this world yet his name has since become well know throughout the western nations. He has thus became a well known celebrety.
+    It's been less than a year since Masayuki arrived in this world yet his name has since become well know throughout the western nations. He has thus became a well known celebrity.
 
     怎么会这样？
     How could this be?
@@ -41,17 +41,17 @@
     When suddelly, he saw a beautiful blue haird super model like cocasian women
 
     那奇异的发色远看依旧十分醒目。正幸长这么大第一次看到那么漂亮的人，那般美人会引起众人注目自是理所当然。
-    that strangely colored hair is very eye catching. This is the first time Masayuki shaw someone this beautiful. It's only natrwal for soreone like to catch the attention of many
+    That strangely colored hair is very eye catching. This is the first time Masayuki shaw someone this beautiful. It's only natrwal for soreone like to catch the attention of many
 
     「喂，快看。她好漂亮──」
     「Hey, look, she's so pretty──」
 
     所以正幸也以男高中生会有的直率反应，朝走在身旁的友人开口。
-    speaking like the highschooler he is, Masayuki made his statement to his friends
+    Speaking like the highschooler he is, Masayuki made his statement to his friends
 
     可是──毫无反应。
     But──there's no responce
-    
+
     正幸在心里「咦」了一声，转头看去──眼前是一片陌生的街道。
     Masayuki thought "hun" and turned to face his friends only to find an unfarmiliar street
 
@@ -66,13 +66,13 @@
     Normally, he doesn't care much for the teacher. Yet this tnme, his question is sincere. But there's no answer... Masayuki has no idea where to even go.
 
     正幸坐在镇上的广场喷水池畔发呆。
-    Masayuki sat on the water fountian in the town square unsure of what to do.
+    Masayuki sat on the water fountain in the town square unsure of what to do.
 
     随著时间一分一秒过去，他稍微冷静下来。毕竟继续这样下去也不是办法，他决定认真思考，想想事情怎么会变成这样。
-    As time slowly ticks on, Masayuki began to calm down. After all, continueing like this isn't going to solve the problem. He decided to really give it some thought and figure out how things ended up like this.
+    As time slowly ticks on, Masayuki began to calm down. After all, continuing like this isn't going to solve the problem. He decided to really give it some thought and figure out how things ended up like this.
 
     仔细想想，那个美女很可疑。
-    Thinking over it carefully, that beautie is quite suspicious
+    Thinking over it carefully, that beauty is quite suspicious
 
     长得那么美，却没人注意到她。虽然没有什么依据，但是正幸的直觉如此告诉他。
     She's pretty much unnoticed despite how pretty she is. Though there's no basis for this, yet that's what Masayuki's gut feelings told him
@@ -82,10 +82,10 @@
     {the term "美女" is used a lot and directly translates to "beautiful/pretty" + "girl/women". I have decided to just use the word "beautie" instead since this is a forshadowing for Velgrynd}
 
     转头张望也看不到她的踪影，到处都找不著。
-    No matter where Masayuki looked, [he] couldn't spot her again. Infact, [she's] nowhere to be found
+    No matter where Masayuki looked, [he] couldn't spot her again. In fact, [she's] nowhere to be found
 
     （像这种时候，身为始作俑者的美女应该也要一起来才对啊。话说回来，咦？真的假的？这不是整人游戏，真的是跑到异世界了那类型的？）
-    (In times like this, isn't the beautie who initiated this whole thing supposed to come with right? speaking of, err? This isn't some kind of a prank? have [I] really been transported to an isekai?)
+    (In times like this, isn't the beauty who initiated this whole thing supposed to come with right? speaking of, err? This isn't some kind of a prank? have [I] really been transported to an isekai?)
 
     然后身旁还会刚好有个知情人士这种好事。
     And there's some kind of a knowledgeable person near by or something like that
@@ -100,7 +100,7 @@
     Masayuki has yet to eat anything and his last meal was at lunch. It doesn't take a genius to figur out that [he's] hungry
 
     等一下啊──正幸认真地思考著。
-    wait a minute──Masayuki seriousely thought
+    Wait a minute──Masayuki seriously thought
 
     这里是一座城镇。不是出现在森林或是魔物面前算他运气好，但事情的发展还是太强人所难了。
     This is a town. Not spawning in the middle of the forest or in front of some monsters is [a feat of] luck already, but things are still too difficult.
@@ -622,4 +622,3 @@
     对于受万人赞扬的自己日日都感到疑惑。
 
     这样的正幸即将碰上天大转机──添加书签     返回书页     上一页     下一页     返回书目     推荐本书
-
