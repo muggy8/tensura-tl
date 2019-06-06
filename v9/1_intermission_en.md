@@ -18,19 +18,19 @@ Sashimi cooking that involved of cutting and rolling fishes, Hakurou was indeed 
 
 With that said, she still honestly received my thanks.
 
-After that, I addressed Myourmaille whose been concentrating with works behind the scenes.  
+After that, I addressed Myourmiles whose been concentrating with works behind the scenes.
 
-"Myourmaille-kun, how about merchants side? Is there any problem happened?"
+"Myourmiles-kun, how about merchants side? Is there any problem happened?"
 
 In preparation to be displayed at festival, we added influx of various goods from various countries.
 
-People who managed it were Rigurd and Lilina-san. I gave task to Myourmaille to handle every merchant that coming here.
+People who managed it were Rigurd and Lilina-san. I gave task to Myourmiles to handle every merchant that coming here.
 
-"Merchants' opinions are great. After they see this majestic view of this country, all of them were surprised. The event last evening, all of them ate various cooking relishly. Peasants from neighbourhood countries coming here too, so we can say it was great success. Many goods are in good quality, we can hope to continue good commerce relation with them ―――"
+"Merchants' opinions are great. After they see this majestic view of this country, all of them were surprised. The event last evening, all of them ate various delicacies. Peasants from neighborhood countries coming here too, so we can say it was great success. Many goods are in good quality, we can hope to continue good commerce relation with them ―――"
 
-Myourmaille then glanced to Rigurd. Rigurd nodded and took over the explanation.
+Myourmiles then glanced to Rigurd. Rigurd nodded and took over the explanation.
 
-"Yes. It's just like Myourmaille-dono mentioned, many new things like vegetables, fruits, smoked-meat and smoked-fish, and also many arts collected. There are people who transporting living livestock here, we can say that the preparation for festival is perfect."
+"Yes. It's just like Myourmiles-dono mentioned, many new things like vegetables, fruits, smoked-meat and smoked-fish, and also many arts collected. There are people who transporting living livestock here, we can say that the preparation for festival is perfect."
 
 Rigurd approved it by saying there's no need to worry about goods deficiency.
 
@@ -42,7 +42,7 @@ Lilina-san nodded with what Rigurd said and added that.
 
 "Yes, I think so too. But ――― nah, it will be fine."
 
-Hm? Myourmaille somehow wanted to say something but then he revised his thought and not saying a thing. This kind of thing really made me curious so I just hope he really said it all.
+Hm? Myourmiles somehow wanted to say something but then he revised his thought and not saying a thing. This kind of thing really made me curious so I just hope he really said it all.
 
 "Hey, come on, I told you to not hold back right? If you stopped in half-way, it makes me more curious you know."
 
@@ -50,7 +50,7 @@ I said that and encouraged him to talk.
 
 Even Benimaru and Souei somehow agreed with me and just nodded without saying a thing.
 
-Because of that pressure, Myourmaille scratched his head and opened his mouth.
+Because of that pressure, Myourmiles scratched his head and opened his mouth.
 
 "Maybe it's just my overthinking, but many merchants that made several transactions for goods displayed in window shop are someone that I never know before. I'm confidence that I have good memory to remember people, I just think about this more. So I investigated about them a bit ―――"
 
@@ -58,21 +58,21 @@ He thought something but then there wasn't any problem happened.
 
 From shop owners that he knew, he heard that lot of them were new commerce partners. But those owners never heard anything bad about them. They provided good quality goods with low prices, so he was laughed because worrying this too much.
 
-Myourmaille tried to interact to several of them, and their behaviour was good.
+Myourmiles tried to interact to several of them, and their behavior was good.
 
 "Maybe because I'm just tasked with important jobs, it makes me in high strung probably."
 
-Myourmaille said that while making bitter smile.
+Myourmiles said that while making bitter smile.
 
-Recently, jobs that Myourmaille had to undertake were enourmous. So I worried whether he had been fine and so I wanted to hear something from him.
+Recently, jobs that Myourmiles had to undertake were enormous. So I worried whether he had been fine and so I wanted to hear something from him.
 
 "Hey really, are you okay? Are you doing impossible and overworked……?"
 
-But Myourmaille denied my worrying with a laugh.
+But Myourmiles denied my worrying with a laugh.
 
 "Hahaha, please don't worry. Leaving this aside, I have more important topic!  At fighting tournament tomorrow, the champ Masayuki is going to participate!! This has become rumour to entire city, many bars are having bet for this."
 
-Myourmaille passionately ensured that he didn't overworked. Moreover, he brought topic which decided yesterday afternoon about Masayuki's participation.
+Myourmiles passionately ensured that he didn't overworked. Moreover, he brought topic which decided yesterday afternoon about Masayuki's participation.
 
 "That's right. I want to hear opinions from you all about this so that's why I have you to come here now."
 
@@ -86,9 +86,9 @@ The one who answered wasn't Souei but Shion.
 
 Oh I see, no wonder why Shion didn't go berserk back then.
 
-I thought she did become calmer but it seemed I still couldn't take it easy.Thankfully Souei was there too.
+I thought she did become calmer but it seemed I still couldn't take it easy. Thankfully Souei was there too.
 
-"I'm glad you stopped her. There was my friend Yuuki too over there, if the rumour that I picked fight against champion in front of city gate became widespread, it would just only added unneeded vigilance for people."
+"I'm glad you stopped her. There was my friend Yuuki too over there, if the rumor that I picked fight against champion in front of city gate became widespread, it would just only added unneeded vigilance for people."
 
 I said that with a sigh and Benimaru nodded.
 
@@ -104,7 +104,7 @@ Benimaru said that with doubt, let his sight going everywhere.
 
 Right, he's unreliable too.
 
-"So Rimuru-sama. The discussion that you want to hold is how to finish that whatever champ? If you give that job to me, I will make him dissappear without trace this night."
+"So Rimuru-sama. The discussion that you want to hold is how to finish that whatever champ? If you give that job to me, I will make him disappear without trace this night."
 
 "I don't intend like that. Don't hastily move based on assumption, okay?"
 
@@ -142,7 +142,7 @@ And Hakurou too.
 
 He didn't say anything but he became restless.
 
-Gavil had his own exhibition so he could only make disappointed expression……….
+Gabiru had his own exhibition so he could only make disappointed expression……….
 
 ――― Oh well, their reaction were better that what I expected.
 
@@ -166,7 +166,7 @@ All of them shocked and asked me for the reason.
 
 "First is Souei, you are ˝secret operative˝<sup name="ref-1">[1](#onmitsu)</sup> right? Fighting in the middle of everyone eyes is out of question."
 
-Souei realized after I said that, since he's convinved so he didn't complain again.
+Souei realized after I said that, since he's convinced so he didn't complain again.
 
 I'm glad he didn't say something selfish like participate by disguising. But I added something just to make sure.
 
@@ -174,7 +174,7 @@ I'm glad he didn't say something selfish like participate by disguising. But I a
 
 "Office?"
 
-"Right. You're going to oversee any intelligent activities within country, and I'll give you official title. You're going to command official army named ˝Darkness˝<sup name="ref-2">[2](#darkness-kurayami)</sup>. I approve Soka and other those your subordinates, but just don't say that to them okay?"
+"Right. You're going to oversee any intelligent activities within country, and I'll give you official title. You're going to command official army named ˝Darkness˝<sup name="ref-2">[2](#darkness-kurayami)</sup>. I approve Souka and other those your subordinates, but just don't say that to them okay?"
 
 "Understood!! Thank you very much, Rimuru-sama!!"
 
@@ -208,7 +208,7 @@ Among these 3, Benimaru was the fittest to be a leader. After all Benimaru had r
 
 Benimaru was the fittest to be representative of this mysterious office "Four Divine King".
 
-Even though I said like that, this was actually completely just a hononary title. The excuse to make sure they wouldn't participate to tournament.
+Even though I said like that, this was actually completely just a honorary title. The excuse to make sure they wouldn't participate to tournament.
 
 "I'm the representative ……… I'm gladly take this title!!"
 
@@ -268,7 +268,7 @@ So people who can participate is ―――
 
 As expected, it's only Geld alone.
 
-Since Gavil had his own exhibition, he couldn't participate. As Geld understood this, he accepted Gavil's entrusted feeling.
+Since Gabiru had his own exhibition, he couldn't participate. As Geld understood this, he accepted Gabiru's entrusted feeling.
 
 "Understood. I will give my all, and will stop Masayuki whatever to win!"
 
@@ -288,7 +288,7 @@ Suddenly Rigur stood up and said that to me.
 
 In order to handle when something unexpected happened in the tournament, having more participants could be better.
 
-If it's Rigur recomendation who himself had reached A-rank, I thought I could believe it.
+If it's Rigur recommendation who himself had reached A-rank, I thought I could believe it.
 
 "R-right. I don't think we won't have problem with Geld participating, but this is just in case, so who is it?"
 
@@ -298,13 +298,13 @@ I said that and asked Rigur to elaborate.
 
 Strongest after Rigur? ――― he meant!?
 
-"Gobta!!"
+"Gobuta!!"
 
 Right, just what I thought.
 
 But as if to dispel my worry, Rigurd too nodded strongly.
 
-"If it's Gobta, he's fit most as our representation."
+"If it's Gobuta, he's fit most as our representation."
 
 He said like that.
 
@@ -316,13 +316,13 @@ No opposition from executives.
 
 At very least I had to ask whether the person in question has the willingness ……….
 
-"Wosh, wosh"<sup name="gobta-what">[4](#gobta-what)</sup>
+"Wosh, wosh"<sup name="Gobuta-what">[4](#Gobuta-what)</sup>
 
 Right.
 
 He himself very motivated, so it's no problem.
 
-I thought no problem, and approved Gobta's participation in the tournament.
+I thought no problem, and approved Gobuta's participation in the tournament.
 
 I thought to conclude this discussion, but before I had chance, there's a voice.
 
@@ -336,25 +336,25 @@ Ranga had awakened and came out from shadow saying that, while swaying his tail.
 
 In the tournament where people competing their skills, Ranga's strength was out of tournament standard.
 
-I disapproved his request, and Myourmaille nodded to agree with me.
+I disapproved his request, and Myourmiles nodded to agree with me.
 
-Ranga looked at Gobta resentfully.
+Ranga looked at Gobuta resentfully.
 
 Ranga was looked sad but in this matter, I had no choice, I kept my heart strong and rejected his request.
 
-"To accomodate Geld-dono and Gobta-dono participation, I will prepare seeding. Since the total participants are more than 200 people, I will divide them to 6 arenas and have battle-royal fight on each arena to pickup people that pass to final tournament."
+"To accommodate Geld-dono and Gobuta-dono participation, I will prepare seeding. Since the total participants are more than 200 people, I will divide them to 6 arenas and have battle-royal fight on each arena to pickup people that pass to final tournament."
 
 Total was more than 200 people, the participants indeed were so many.
 
-With preeliminary battle at tomorrow, it would decided the 8 person who will fight in final tournament.
+With preliminary battle at tomorrow, it would decided the 8 person who will fight in final tournament.
 
-There wasn't any need to time limit pre-eliminary, so at first it was decided to have 8 division which each division having battle-royale. Since we had two people participate so it's changed to 6 division.
+There wasn't any need to time limit preliminary, so at first it was decided to have 8 division which each division having battle-royal. Since we had two people participate so it's changed to 6 division.
 
-"I have to guide guests from each country tomorrow, so I give the proceeding to Myourmaille. I leave this matter to you!"
+"I have to guide guests from each country tomorrow, so I give the proceeding to Myourmiles. I leave this matter to you!"
 
 "Please don't worry!"
 
-As Myourmaille answered convincingly, I relieved and nodded to him.
+As Myourmiles answered convincingly, I relieved and nodded to him.
 
 "Diablo, you know several journalists right?"
 
@@ -366,7 +366,7 @@ Since he's already known so it's useless to hide his power.
 
 But, if the feared daemon worked as referee ――― so it would give a huge-gap and would make impression on him better even a little.
 
-"Sorry but I'd like you to be the referee. Since champ Masayuki, Geld and Gobta participate, I don't think hobgoblin is fit to be referee."
+"Sorry but I'd like you to be the referee. Since champ Masayuki, Geld and Gobuta participate, I don't think hobgoblin is fit to be referee."
 
 "Kufufufu, please leave it to me!"
 
@@ -383,4 +383,4 @@ To prepare for events tomorrow, we then slept to rest.
 <a name="onmitsu" href="#ref-1">1</a>: onmitsu; 隠密; secret agent
 <a name="darkness-kurayami" href="#ref-2">2</a>: クラヤミ；藍闇衆
 <a name="four-king" href="#ref-3">3</a>:  四天王
-<a name="gobta-what" href="#ref-4">4</a>: スピー、スピー; don't know what it means
+<a name="Gobuta-what" href="#ref-4">4</a>: スピー、スピー; don't know what it means
