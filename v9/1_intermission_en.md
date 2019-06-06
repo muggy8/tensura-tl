@@ -376,7 +376,7 @@ If anything happened, Diablo would be able to handle it.
 
 """Yes sir!!"""
 
-This time the discussion was ended.
+This time the discussion has ended.
 
 To prepare for events tomorrow, we then slept to rest.
 
