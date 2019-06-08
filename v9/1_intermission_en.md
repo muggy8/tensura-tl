@@ -22,7 +22,7 @@ After that, I addressed Myourmiles whose been concentrating with works behind th
 
 "Myourmiles-kun, how about merchants side? Is there any problem happened?"
 
-In preparation to be displayed at festival, we added influx of various goods from various countries.
+In preparation to be displayed at the festival, we added influx of various goods from various countries.
 
 People who managed it were Rigurd and Lilina-san. I gave task to Myourmiles to handle every merchant that coming here.
 
@@ -30,21 +30,21 @@ People who managed it were Rigurd and Lilina-san. I gave task to Myourmiles to h
 
 Myourmiles then glanced to Rigurd. Rigurd nodded and took over the explanation.
 
-"Yes. It's just like Myourmiles-dono mentioned, many new things like vegetables, fruits, smoked-meat and smoked-fish, and also many arts collected. There are people who transporting living livestock here, we can say that the preparation for festival is perfect."
+"Yes. It's just like Myourmiles-dono mentioned, many new goods like vegetables, fruits, smoked-meat and smoked-fish, and also many arts collected. There are also people who transporting living livestock here, we can say that the preparation for the festival is perfect."
 
-Rigurd approved it by saying there's no need to worry about goods deficiency.
+Rigurd approved it by saying that there's no need to worry about goods deficiency.
 
 "Ingredients for tomorrow banquet is readily imported too."
 
 Lilina-san nodded with what Rigurd said and added that.
 
-"So it will be no problem indeed."
+"So there will be no problem indeed."
 
 "Yes, I think so too. But ――― nah, it will be fine."
 
-Hm? Myourmiles somehow wanted to say something but then he revised his thought and not saying a thing. This kind of thing really made me curious so I just hope he really said it all.
+Hm? Myourmiles somehow wanted to say something but then he revised his thought and not saying a thing. This kind of things really made me curious so I just hope he really just said it.
 
-"Hey, come on, I told you to not hold back right? If you stopped in half-way, it makes me more curious you know."
+"Hey, come on, I told you not to hold back right? If you stopped in half-way, it makes me more curious you know."
 
 I said that and encouraged him to talk.
 
@@ -52,7 +52,7 @@ Even Benimaru and Souei somehow agreed with me and just nodded without saying a 
 
 Because of that pressure, Myourmiles scratched his head and opened his mouth.
 
-"Maybe it's just my overthinking, but many merchants that made several transactions for goods displayed in window shop are someone that I never know before. I'm confidence that I have good memory to remember people, I just think about this more. So I investigated about them a bit ―――"
+"Maybe it's just me overthinking, but many merchants that made several transactions for goods displayed in window shop are someone that I never know before. I'm confidence that I have good memory to remember people, I just think about this more. So I investigated about them a bit ―――"
 
 He thought something but then there wasn't any problem happened.
 
@@ -60,41 +60,41 @@ From shop owners that he knew, he heard that lot of them were new commerce partn
 
 Myourmiles tried to interact to several of them, and their behavior was good.
 
-"Maybe because I'm just tasked with important jobs, it makes me in high strung probably."
+"Maybe it's because I'm just tasked with important jobs, it makes me in high strung probably."
 
 Myourmiles said that while making bitter smile.
 
 Recently, jobs that Myourmiles had to undertake were enormous. So I worried whether he had been fine and so I wanted to hear something from him.
 
-"Hey really, are you okay? Are you doing impossible and overworked……?"
+"Hey really, are you okay? Are you doing the impossible and overworked……?"
 
 But Myourmiles denied my worrying with a laugh.
 
-"Hahaha, please don't worry. Leaving this aside, I have more important topic!  At fighting tournament tomorrow, the champ Masayuki is going to participate!! This has become rumour to entire city, many bars are having bet for this."
+"Hahaha, please don't worry. Leaving this aside, I have more important topic!  At fighting tournament tomorrow, the champ Masayuki is going to participate!! This has become rumor to entire city, many bars are having bets for this."
 
-Myourmiles passionately ensured that he didn't overworked. Moreover, he brought topic which decided yesterday afternoon about Masayuki's participation.
+Myourmiles passionately ensured that he didn't overworked. Moreover, he brought the topic which decided yesterday afternoon about Masayuki's participation.
 
 "That's right. I want to hear opinions from you all about this so that's why I have you to come here now."
 
-Rimuru told everyone about what happened before when he came to see Masayuki and his group, and reaction when heard that first time. Benimaru looked at Souei and asked for detail with "What's with that situation?".
+Rimuru told everyone about what happened before when he came to see Masayuki and his group, and the reaction when they heard that it for the first time. Benimaru looked at Souei and asked for detail with "What's with that guy?".
 
 The one who answered wasn't Souei but Shion.
 
-"Those are annoying rude bunch! They told something cooky like subjugating Rimuru-sama. I wanted to bury them all but ………"
+"Those are annoying rude bunch! They told something kooky like subjugating Rimuru-sama. I wanted to bury them all but ………"
 
 "I stopped her. There were many people out there, also if Shion went berserk there, it would definitely affect the festival tomorrow."
 
 Oh I see, no wonder why Shion didn't go berserk back then.
 
-I thought she did become calmer but it seemed I still couldn't take it easy. Thankfully Souei was there too.
+I thought she  become calmer but it seemed I still couldn't take it easy. Thankfully Souei was there too.
 
-"I'm glad you stopped her. There was my friend Yuuki too over there, if the rumor that I picked fight against champion in front of city gate became widespread, it would just only added unneeded vigilance for people."
+"I'm glad you stopped her. There was my friend Yuuki too over there, if  rumor says that I picked a fight against a champion in front of the city gate it would became widespread, it would  only added unneeded cautions for people."
 
 I said that with a sigh and Benimaru nodded.
 
 "It's indeed like that. Shion, be more prudent okay?"
 
-"Ha, you don't have to tell me. I just disgruntled a bit, never wanted to really make a scene there. But ―――"
+"Ha, you don't have to tell me. I'm just disgruntled a bit, never really wanted to make a scene there. But ―――"
 
 "Kufufufu, I understand what Shion-dono wanted to say. You just can't stand still while master being ridiculed right? If Benimaru-dono was there, you would have that reaction too."
 
@@ -112,7 +112,7 @@ So I pressed to make sure everyone there understood.
 
 After changing the mood, I told the discussion topic.
 
-"What I wanted to discuss is, which executives that going to participate in fighting tournament tomorrow."
+"What I wanted to discuss is, which executives that is going to participate in the fighting tournament tomorrow."
 
 As I said those words, it had explosive effect ―――
 
@@ -180,19 +180,19 @@ I'm glad he didn't say something selfish like participate by disguising. But I a
 
 Souei became impressed more than I thought.
 
-This was actually just a excuse to make him not to participate to tournament, but if he himself like that, this is good too.
+This was actually just an excuse to make him not to participate to the tournament, but if he himself like that, then this is good too.
 
 Souei had several hundreds subordinates. If he went to selectively choose from them who will be Darkness member is okay too.
 
-Souei was good with this, the rest 3 persons.
+Souei was good with this, now for the remaining 3.
 
-In all my subordinates, those 3 were among the strongest.
+out of all my subordinates, those 3 were among the strongest.
 
 Saying to them to not participate was the source of problem. I knew this would happen so I already made a countermeasure.
 
-"Hear me okay? I'm currently thinking of office that will handle important people from west-side countries, officially as ˝Four Divine King˝<sup name="ref-3">[3](#four-king)</sup>."
+"Hear me okay? I'm currently thinking of an office that will handle important people from west-side countries, officially as ˝Four Divine Kings˝<sup name="ref-3">[3](#four-king)</sup>."
 
-"Four Divine King………"
+"Four Divine Kings………"
 
 "Oh my―――"
 
@@ -204,63 +204,63 @@ All of them were baited.
 
 "3 of you are exceptionally strong from all my subordinates. So there, the representative is Benimaru, 2 from the rest of 3 people, I want assign both of you, Shion and Diablo."
 
-Among these 3, Benimaru was the fittest to be a leader. After all Benimaru had role for overseeing army as general in place of me.
+Among these 3, Benimaru was the fittest to be the leader. After all Benimaru had a role of overseeing army as a general in place of me.
 
-Benimaru was the fittest to be representative of this mysterious office "Four Divine King".
+Benimaru was the fittest to be the representative of this mysterious office "Four Divine Kings".
 
-Even though I said like that, this was actually completely just a honorary title. The excuse to make sure they wouldn't participate to tournament.
+Even though I said like that, this was actually completely just a honorary title. The excuse was to make sure they wouldn't participate to tournament.
 
 "I'm the representative ……… I'm gladly take this title!!"
 
 Good. Benimaru took it.
 
-"I'm not too convinced that Benimaru as representative, but with my work later I will show you to think again. I'm too gladly receive the title of Four Divine King. Rimuru-sama!"
+"I'm not too convinced with Benimaru as the representative, but with my work later on in the future, I will show you to think again. I'm too gladly receive the title of the Four Divine Kings. Rimuru-sama!"
 
 Shion took it too.
 
-"Four Divine King, huh? I'm targeting to be number 1 for Rimuru-sama, but I'm realized that I'm too just a new member here. I can't be greedy. Here, I'll strive to be closer to Rimuru-sama even little by little."
+"Four Divine Kings, huh? I'm targeting to be number 1 for Rimuru-sama, but I realized that I'm just a new member here. I can't be greedy. Here, I'll strive to be closer to Rimuru-sama even little by little."
 
 Right, would he accept it?
 
 Diablo was really has such handful personality, really.
 
-Anyway, these 3 would named themselves as member of Four Divine King
+Anyway, these 3 would named themselves as member of the Four Divine Kings
 
-"I thank you all to accept it. Okay, I told you all that you 3 cannot participate in tournament, so this Four Divine King is the reason."
+"I thank you all for accepting it. Okay, I told you all that the 3 of you cannot participate in the tournament, so this Four Divine Kings is the reason."
 
 "And, the meaning?"
 
-"Hm. Actually we need to choose the last member of Four Divine King. I thought that Souei is fit for this, but Souei is secret operative. He couldn't just easily let himself known, so he's ruled out for this."
+"Hm. Actually we need to choose the last member of the Four Divine Kings. I thought that Souei is fit for this, but Souei is a secret operative. He couldn't just easily let himself known, so he's ruled out for this."
 
 I said like that and looked how people reacted, all of them nodded to agree.
 
-"So with that said, I'm going to have the remaining people here to participate, and the winner can call himself as Four Divine King too, how do you all think?"
+"So with that said, I'm going to have the remaining people here to participate, and the winner can call himself as the Four Divine Kings too, how do you all think?"
 
-I barraged them with several questions and arguments, atmosphere within discussion hall became a stance that will react based on other attitude.
+I barraged them with several questions and arguments, atmosphere within discussion hall became a stance that will react based on others attitude.
 
 But here, I got unexpected line.
 
-"Hm………. I actually wanted to participate, but tomorrow I have date ――― I meant, I'm promised to guide Momiji around city ……… but, if it's Rimuru-sama's order ―――"
+"Hm………. I actually wanted to participate, but tomorrow I have a date ――― I meant, I'm promised to guide Momiji around the city ……… but, if it's Rimuru-sama's order ―――"
 
-The person that I wanted to count on, Hakurou, unexpectedly asked to not participating.
+The person that I wanted to count on, Hakurou, unexpectedly decline to  participate.
 
 A person who had high level skill like Hakurou would be undefeated, but the timing was too bad. He said he would participate if it's an order, but it's not like I can do that.
 
-To measure Masayuki's skill, I thought Hakurou was the fittest for it ――― but to disturb chance to make a memory with his daughter would only bring a grudge.
+To measure Masayuki's skill, I thought Hakurou was the fittest for it ――― but to disturb a chance to make a memory with his daughter would only bring a grudge.
 
 "That's important, Hakurou. If you break that promise, Momiji-chan will never talk to you again in her life."
 
 "T-that's………"
 
-I had senior in workplace that broke his promise to his daughter and went to work instead, he lamented that his daughter had been ignoring him for entire week.
+I had a senior at my workplace that broke his promise to his daughter and went to work instead, he lamented that his daughter had been ignoring him for an entire week.
 
 Those two finally met together, so what would happen if the promise was broken ……….
 
-"Also, Instead of being Four Divine King, Hakurou is better to be Benimaru's army advisor."
+"Also, Instead of being Four Divine Kings, Hakurou is better to be Benimaru's army advisor."
 
 Hakurou nodded because he was impressed.
 
-I accepted Hakurou request to not participating in tournament.
+I accepted Hakurou's request to not participate in the tournament.
 
 So people who can participate is ―――
 
@@ -282,7 +282,7 @@ Oh well, I would think about it again later. Now it's enough for Geld to measure
 
 When I thought like that.
 
-"I want to introduce a man who fit for title Four Divine King!"
+"I want to introduce a man who is fit for title 0f the Four Divine Kings!"
 
 Suddenly Rigur stood up and said that to me.
 
@@ -290,11 +290,11 @@ In order to handle when something unexpected happened in the tournament, having 
 
 If it's Rigur recommendation who himself had reached A-rank, I thought I could believe it.
 
-"R-right. I don't think we won't have problem with Geld participating, but this is just in case, so who is it?"
+"R-right. I don't think we won't have any problem with Geld participating, but this is just in case, so who is it?"
 
 I said that and asked Rigur to elaborate.
 
-"I'm afraid that I cannot participate myself since I have task to handle security, but we have a strongest person after me. He is ―――"
+"I'm afraid that I cannot participate myself since I have task as handling security, but we have the strongest person after me. He is ―――"
 
 Strongest after Rigur? ――― he meant!?
 
@@ -308,7 +308,7 @@ But as if to dispel my worry, Rigurd too nodded strongly.
 
 He said like that.
 
-"Fufu, he can be classified as talented among my disciples. Kinda clever and tactician, also has good technique. He still doesn't develop his basic power, but it's also interesting if we use this tournament as chance for him to grow more."
+"Fufu, he can be classified as talented among my disciples. Kinda clever and also has some good technique. He still doesn't develop his basic power, but it's also interesting if we use this tournament as a chance for him to grow more."
 
 Even Hakurou said something like that.
 
@@ -324,7 +324,7 @@ He himself very motivated, so it's no problem.
 
 I thought no problem, and approved Gobuta's participation in the tournament.
 
-I thought to conclude this discussion, but before I had chance, there's a voice.
+I thought to conclude this discussion, but before I had the chance, there's a voice.
 
 "My king, I think I will participate to that tournament whatever!"
 
@@ -342,11 +342,11 @@ Ranga looked at Gobuta resentfully.
 
 Ranga was looked sad but in this matter, I had no choice, I kept my heart strong and rejected his request.
 
-"To accommodate Geld-dono and Gobuta-dono participation, I will prepare seeding. Since the total participants are more than 200 people, I will divide them to 6 arenas and have battle-royal fight on each arena to pickup people that pass to final tournament."
+"To accommodate Geld-dono and Gobuta-dono participation, I will prepare seating's. Since the total participants are more than 200 people, I will divide them to 6 arenas and have a battle-royal fight on each arena to pickup people that pass to the final tournament."
 
 Total was more than 200 people, the participants indeed were so many.
 
-With preliminary battle at tomorrow, it would decided the 8 person who will fight in final tournament.
+With the preliminary battle  tomorrow, it would decided that 8 person who will fight in final tournament.
 
 There wasn't any need to time limit preliminary, so at first it was decided to have 8 division which each division having battle-royal. Since we had two people participate so it's changed to 6 division.
 
@@ -364,7 +364,7 @@ As expected Diablo was well prepared.
 
 Since he's already known so it's useless to hide his power.
 
-But, if the feared daemon worked as referee ――― so it would give a huge-gap and would make impression on him better even a little.
+But, if the feared daemon worked as a referee ――― so it would give a huge-gap and would make impression on him better even a little.
 
 "Sorry but I'd like you to be the referee. Since champ Masayuki, Geld and Gobuta participate, I don't think hobgoblin is fit to be referee."
 
@@ -376,7 +376,7 @@ If anything happened, Diablo would be able to handle it.
 
 """Yes sir!!"""
 
-This time the discussion was ended.
+This time the discussion has ended.
 
 To prepare for events tomorrow, we then slept to rest.
 
